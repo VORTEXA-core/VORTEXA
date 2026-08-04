@@ -1,1 +1,1 @@
-VORATHCOIN
+Luminora
