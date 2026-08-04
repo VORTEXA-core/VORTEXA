@@ -1,1 +1,1 @@
-Stroxium
+THALOR
